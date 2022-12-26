@@ -1,2 +1,2 @@
 # ar.maulana-myportfolio
-CV TIDAK DI UNTUK DI UPLOAD
+CV TIDAK UNTUK DI UPLOAD
